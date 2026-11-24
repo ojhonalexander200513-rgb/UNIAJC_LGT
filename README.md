@@ -1,1 +1,1 @@
-# UNIAJC_LGT
+# UNIAJC_LGS
